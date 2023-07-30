@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BismanjitSingh
-- 👀 I’m interested in Dogs
-- 🌱 I’m currently learning Class 9th
-- 💞️ I’m looking to collaborate on Puppies
+- 👀 I’m interested in photography
+- 🌱 I’m currently learning Class 11th
+- 💞️ I’m looking to collaborate on pictures
 - 📫 How to reach me puppyysingh@gmail.com
 
 <!---
